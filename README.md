@@ -1,1 +1,0 @@
-# trainingzone-mini-site
